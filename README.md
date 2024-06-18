@@ -10,5 +10,5 @@
   00001080238992sp@al.educacao.sp.gov.br
 
 
-![](https://github.com/Abobrinha7/Abobrinha7/assets/172817453/e3a2ca41-21b5-4868-92cb-a6606dd47a12)
+![](https://media1.tenor.com/m/9i8HHqhhhR0AAAAC/kitty-high-kitten.gif)
 
